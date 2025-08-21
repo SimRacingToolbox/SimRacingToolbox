@@ -28,3 +28,9 @@ Contact us [here](mailto:simracingtoolbox@gmail.com) or in #🎫・support in ou
 2. Use the [**github page**](simracingtoolbox.github.io)
 
 ## Become a tester and give us Feedbacks and Suggestions in our [discord server](https://discord.gg/E9rQ5yNUyT)
+
+---
+
+# Made by:
+### [Minghe](linktr.ee/minghef1) and [CiccioBro17](github.com/CiccioBro17)
+
